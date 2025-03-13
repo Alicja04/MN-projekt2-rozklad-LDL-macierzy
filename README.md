@@ -1,0 +1,1 @@
+# MN-projekt2-rozklad-LDL-macierzy
